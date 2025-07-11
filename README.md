@@ -20,6 +20,6 @@
 结语  
 通过正规、安全的在线视频平台观看日本AV影片，观众不仅能享受到高清流畅的观看体验，还能确保隐私和数据的安全。选择值得信赖的平台，享受无忧的观影时光。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/error40466/yaaa09 )</span>
 
 
